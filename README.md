@@ -1,6 +1,6 @@
 # Bitz Net官网地址
 
-最新地址：[getbitznet.com](https://new.bnaffloop.com/#/register?code=KvAcbtC6)
+最新地址：[getbitznet.com](https://dir3.bnaffloop.com/#/register?code=KvAcbtC6)
 
 
 备用：[getbitznet.com](https://gobitznet.com/aff=KvAcbtC6)
