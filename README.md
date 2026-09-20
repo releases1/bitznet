@@ -2,8 +2,6 @@
 
 最新地址：[Bitz Net 访问入口](https://red.bnaffred.com/#/register?code=KvAcbtC6)
 
-备用地址：[Bitz Net 备用入口](https://gobitznet.com/aff=KvAcbtC6)
-
 ## 简介
 
 Bitz Net（BitzNet）是一家运营 8 年的机场服务商。根据原有服务资料，其网络覆盖全球 17 个国家与地区的 20 余个数据中心，包括香港、台湾、日本、韩国、新加坡、美国、英国、法国、德国、澳大利亚、俄罗斯、菲律宾、土耳其、阿根廷、巴西、印度和沙特。
